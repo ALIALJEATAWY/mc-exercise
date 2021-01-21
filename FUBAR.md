@@ -11,5 +11,7 @@ Hello everyone
 
 We are the best team
 
+Now we are writing on Mageda's computer while working as pairs
+thats done by Mageda & Bara'a :))
 
 
