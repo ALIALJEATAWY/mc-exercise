@@ -1,0 +1,1 @@
+that is what bisher nobani and ali mohammad do in bisher computer 
